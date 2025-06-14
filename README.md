@@ -34,7 +34,6 @@
 ## 📫 How to reach me
 
 - 📧 Email: akankitbgs777@gmail.com
-- 💼 LinkedIn: [Add your LinkedIn URL here]
 
 ---
 
